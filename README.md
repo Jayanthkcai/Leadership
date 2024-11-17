@@ -1,6 +1,7 @@
 Leadership is guiding and inspiring others to achieve a goal. 
 
 **Individual Contributer**: Success is all about growing yourself
+
 **Leaders**: Success is all about growing others
 
 **Example**
